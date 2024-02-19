@@ -1,4 +1,4 @@
-# article
+# Elephant Jungle Sanctuary in Chiang Mai, feed the elephants, bathe the elephants Take pictures with cute elephants
 stories about elephants 
 Travel Elephant Jungle Sanctuary is an ethical and sustainable eco-tourism project based in Thailand, with locations in Chiang Mai
 A half-day morning experience at Elephant Jungle Sanctuary offers visitors an opportunity to spend time with elephants in a natural environment.
